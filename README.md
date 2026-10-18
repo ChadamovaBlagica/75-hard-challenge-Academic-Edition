@@ -1,0 +1,1 @@
+75 Hard Challenge - Academic Edition is a productivity app designed to help students build discipline, stay consistent, and achieve their academic goals through daily study challenges, progress tracking, and effective time management.
